@@ -1,1 +1,0 @@
-# royadams.github.io
